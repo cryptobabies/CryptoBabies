@@ -1,4 +1,4 @@
-CryptoBabies.com - Unique, Cute, Collectible, Tradable, CryptoBaby NFTs!\
+https://CryptoBabies.com - Unique, Cute, Collectible, Tradable, CryptoBaby NFTs!\
 Let your CryptoBaby HODL your favorite crypto and earn rewards!\
 Get paid when it matures! Mint yours today! (coming soon!)
 
